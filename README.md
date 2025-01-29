@@ -9,5 +9,5 @@
 
 ### Разработчики
 ***
-> [TimeStop34(Тимофей Храмов)](t.me/TimeActive34)
+> [TimeStop34(Тимофей Храмов)](https://t.me/TimeActive34)
 > Nimdacane(Ярослав Кострюков)
